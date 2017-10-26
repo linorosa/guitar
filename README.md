@@ -119,6 +119,14 @@
 
 - California Dreaming [song](https://www.youtube.com/watch?v=gso6nmgJxUk)
 
+## Raimundos
+
+- A Mais Pedida [song](https://www.youtube.com/watch?v=HCZaQPmgvC4)
+
+## Raul Seixas
+
+- Gita [song](https://www.youtube.com/watch?v=oBertvk8_Q8)
+
 ## Pink Floyd
 
 - Comfortably Numb [song](https://www.youtube.com/watch?v=z7RvS1uZFrQ)
@@ -151,3 +159,7 @@
 ## Stevie Ray Vaughan
 
 - Pride and Joy [song 1](https://www.youtube.com/watch?v=Uy_c5VEmtnA) | [song 2](https://www.youtube.com/watch?v=JCUC1qhMLEI)
+
+## Tim Maia
+
+- Gostava Tanto de Voce [song](https://www.youtube.com/watch?v=15Z_7u0aVZ8)
