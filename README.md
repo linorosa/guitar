@@ -13,6 +13,10 @@
 - Blackbird [song](https://www.youtube.com/watch?v=5TnySn2KqD4)
 - You've Got To Hide Your Love Away [song](https://www.youtube.com/watch?v=9YY7Z7JVMEs)
 
+## Bob Dylan
+
+- Like a Rolling Stone [song](https://www.youtube.com/watch?v=EZTXX7VyWBQ)
+
 ## Elton John
 
 - Rocket Man [song](https://www.youtube.com/watch?v=3FbROPLBUfY)
@@ -54,11 +58,14 @@
 
 - Over the Hills and Far Away [song](https://www.youtube.com/watch?v=VnU_bh0dgNU)
 - Rock n Roll [song](https://www.youtube.com/watch?v=fo1oPFOBsx0)
+- Tangerine [song](https://www.youtube.com/watch?v=p19zQrk6D7M)
+- Ramble On [song](https://www.youtube.com/watch?v=-tvOx1Fl8Js)
 
 ## Lynyrd Skynyrd
 
 - Sweet Home Alabama [song](https://www.youtube.com/watch?v=FOh9-f_o_MM)
 - Simple Man [song](https://www.youtube.com/watch?v=zYGabOwBs1c)
+- Gimme Three Steps [song](https://www.youtube.com/watch?v=3qidwcTmDyc)
   
 ## Rolling Stones
 
@@ -66,6 +73,7 @@
 - The Last Time [song](https://www.youtube.com/watch?v=2j12vjK1R9I)
 - Honky Tonk Woman [song](https://www.youtube.com/watch?v=u-wF_Vb2GLc)
 - You Can't Always Get What You Want [song](https://www.youtube.com/watch?v=4a0Y2xfrUWc)
+- Gimme Shelter [song](https://www.youtube.com/watch?v=-lUhhcrhFbk)
 
 ## Stevie Ray Vaughan
 
