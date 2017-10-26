@@ -19,10 +19,13 @@
 - Blackbird [song](https://www.youtube.com/watch?v=5TnySn2KqD4)
 - You've Got To Hide Your Love Away [song](https://www.youtube.com/watch?v=9YY7Z7JVMEs)
 - From Me To You [song](https://www.youtube.com/watch?v=JwGcobw6mD0)
+- In My Life [song](https://www.youtube.com/watch?v=J_b2a9r8mGI)
+- With a Little Help From My Friends [song](https://www.youtube.com/watch?v=iaSOnJ_OJtY)
 
 ## Bob Dylan
 
 - Like a Rolling Stone [song](https://www.youtube.com/watch?v=EZTXX7VyWBQ)
+- Mr. Tamborine Man [song](https://www.youtube.com/watch?v=xKaxXGbVmX4)
 
 ## Cat Stevens
 
@@ -35,10 +38,11 @@
 ## Creedence
 
 - Bad Moon Rising [song1](https://www.youtube.com/watch?v=tFPs89WBPuU) | [song2](https://www.youtube.com/watch?v=liBI2yT_fpw)
-- Have You Ever Seen The Rain [song](https://www.youtube.com/watch?v=XYi_3Ne4ZfA)
+- Have You Ever Seen The Rain [song 1](https://www.youtube.com/watch?v=XYi_3Ne4ZfA) | [song 2](https://www.youtube.com/watch?v=H6Dnk-nuuNI)
 - Who'll Stop the Rain [song](https://www.youtube.com/watch?v=OjqDgzll8kY)
 - Cotton Fields [song](https://www.youtube.com/watch?v=5_ANQWaMZX8)
 - Midnight Special [song](https://www.youtube.com/watch?v=4TZQW1afVbA)
+- Proud Mary [song](https://www.youtube.com/watch?v=797SO_XKgAY)
 
 ## Elvis Presley
 
@@ -50,6 +54,7 @@
 - Suspicious Minds [song](https://www.youtube.com/watch?v=pU77VhPNmks)
 - (Let Me Be Your) Teddy Bear [song](https://www.youtube.com/watch?v=FHUb0l4SI60)
 - It's Now of Never [song](https://www.youtube.com/watch?v=pvXeAIPDsSQ)
+- My Way [song](https://www.youtube.com/watch?v=gzkDmTHorSg)
 
 ## Elton John
 
@@ -99,6 +104,10 @@
 ## Mamas and The Papas, The
 
 - California Dreaming [song](https://www.youtube.com/watch?v=gso6nmgJxUk)
+
+## Pink Floyd
+
+- Comfortably Numb [song](https://www.youtube.com/watch?v=z7RvS1uZFrQ)
 
 ## Ricky Nelson
 
