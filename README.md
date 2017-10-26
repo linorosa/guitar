@@ -31,12 +31,14 @@
 
 - Bad Moon Rising [song1](https://www.youtube.com/watch?v=tFPs89WBPuU) | [song2](https://www.youtube.com/watch?v=liBI2yT_fpw)
 - Have You Ever Seen The Rain [song](https://www.youtube.com/watch?v=XYi_3Ne4ZfA)
+- Who'll Stop the Rain [song](https://www.youtube.com/watch?v=OjqDgzll8kY)
 
 ## Elvis Presley
 
 - Always on My Mind [song](https://www.youtube.com/watch?v=7kwvdAPUsd0)
 - Blue Suede Shoes [song](https://www.youtube.com/watch?v=u9ldr_iy4tg)
 - Don't Be Cruel [song](https://www.youtube.com/watch?v=0XzGv35seXI)
+- Suspicious Minds [song](https://www.youtube.com/watch?v=pU77VhPNmks)
 
 ## Elton John
 
@@ -45,6 +47,10 @@
 ## Eminem
 
 - Lose Yourself [song](https://www.youtube.com/watch?v=dR8wiiXXkXU)
+
+## Everly Brothers
+
+- Love Hurts [song](https://www.youtube.com/watch?v=2eKxNlBwI0c)
 
 ## Johnny Cash
 
@@ -82,6 +88,12 @@
 ## Ricky Nelson
 
 - Hello Mary Lou [song](https://www.youtube.com/watch?v=Gmtcb_KKqt8)
+
+## Rodrigues
+
+- I Wonder [song](https://www.youtube.com/watch?v=7mZjMxaUnrA)
+- Hate Street Dialogue [song](https://www.youtube.com/watch?v=3_vgmKWWhzI)
+- Crucify Your Mind [song](https://www.youtube.com/watch?v=3IHt3-X0V3U)
   
 ## Rolling Stones
 
