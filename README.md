@@ -29,6 +29,10 @@
 
 - Fire [song](https://www.youtube.com/watch?v=7FiBc8UUQ88)
 
+## Kansas
+
+- Dust in the Wind [song](https://www.youtube.com/watch?v=tvwsFfmKw6A)
+
 ## Led Zeppelin
 
 - Rock n Roll [song](https://www.youtube.com/watch?v=fo1oPFOBsx0)
