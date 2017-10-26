@@ -11,6 +11,7 @@
 ## Beatles
 
 - Blackbird [song](https://www.youtube.com/watch?v=5TnySn2KqD4)
+- You've Got To Hide Your Love Away [song](https://www.youtube.com/watch?v=9YY7Z7JVMEs)
 
 ## Elton John
 
@@ -42,6 +43,8 @@
 
 - Fire [song](https://www.youtube.com/watch?v=7FiBc8UUQ88)
 - Purple Haze [song](https://www.youtube.com/watch?v=YgR9F0bs2uY)
+- Castles Made Of Sand [song](https://www.youtube.com/watch?v=Rm_FGAOy3nA)
+- Voodoo Child [song](https://www.youtube.com/watch?v=uQekC2bDYPQ)
 
 ## Kansas
 
