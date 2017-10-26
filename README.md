@@ -56,6 +56,10 @@
 - Voodoo Child [song](https://www.youtube.com/watch?v=uQekC2bDYPQ)
 - Red House [song](https://www.youtube.com/watch?v=hX7yZUecRPI)
 
+## Joe Cocker
+
+- The Letter [song](https://www.youtube.com/watch?v=0oY6msPeY8w)
+
 ## Kansas
 
 - Dust in the Wind [song](https://www.youtube.com/watch?v=tvwsFfmKw6A)
