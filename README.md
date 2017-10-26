@@ -28,6 +28,7 @@
 
 ## Bob Dylan
 
+- Blowin' In The Wind [song](https://www.youtube.com/watch?v=2HnilYfx60g)
 - Like a Rolling Stone [song](https://www.youtube.com/watch?v=EZTXX7VyWBQ)
 - Mr. Tamborine Man [song](https://www.youtube.com/watch?v=xKaxXGbVmX4)
 
@@ -77,10 +78,15 @@
 
 - Love Hurts [song](https://www.youtube.com/watch?v=2eKxNlBwI0c)
 
+## Franz Ferdinand
+
+- Take Me Out [song](https://www.youtube.com/watch?v=i8OPwPvZyTs)
+
 ## Guns n Roses
 
 - Don't Cry [solo](https://www.youtube.com/watch?v=sSM7uZnix7U)
 - Sweet Child O' Mine [song](https://www.youtube.com/watch?v=ioaExdEGPO4)
+- Welcome To The Jungle [song](https://www.youtube.com/watch?v=ah0GkIsX_MY)
 
 ## Johnny Cash
 
@@ -88,6 +94,7 @@
 
 ## Jimi Hendrix
 
+- All Along The Watchtower [solo](https://www.youtube.com/watch?v=F28Zzitu_4o)
 - Fire [song](https://www.youtube.com/watch?v=7FiBc8UUQ88)
 - Purple Haze [song](https://www.youtube.com/watch?v=YgR9F0bs2uY)
 - Castles Made Of Sand [song](https://www.youtube.com/watch?v=Rm_FGAOy3nA)
@@ -129,6 +136,10 @@
 
 - Gita [song](https://www.youtube.com/watch?v=oBertvk8_Q8)
 
+## REM
+
+- Losing My Religion [song](https://www.youtube.com/watch?v=vPTyg4F9Ovk)
+
 ## Pink Floyd
 
 - Comfortably Numb [song](https://www.youtube.com/watch?v=z7RvS1uZFrQ)
@@ -164,4 +175,4 @@
 
 ## Tim Maia
 
-- Gostava Tanto de Voce [song](https://www.youtube.com/watch?v=15Z_7u0aVZ8)
+- Gostava Tanto de Voce [song 1](https://www.youtube.com/watch?v=15Z_7u0aVZ8) | [song 2](https://www.youtube.com/watch?v=nXmSVU6RQXQ)
