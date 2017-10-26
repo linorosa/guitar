@@ -25,6 +25,7 @@
 
 - Sympathy for the Devil [song](https://www.youtube.com/watch?v=xD6HZ4tQMiU)
 - The Last Time [song](https://www.youtube.com/watch?v=2j12vjK1R9I)
+- Honky Tonk Woman [song](https://www.youtube.com/watch?v=u-wF_Vb2GLc)
 
 ## Stevie Ray Vaughan
 
