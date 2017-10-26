@@ -6,7 +6,7 @@
 
 ## Band, The
 
-- The Weight [song](https://www.youtube.com/watch?v=Ls61tFznCQY)
+- The Weight [song 1](https://www.youtube.com/watch?v=Ls61tFznCQY) | [song 2](https://www.youtube.com/watch?v=MoOsbKl1BOQ)
 
 ## BB King
 
@@ -44,9 +44,11 @@
 
 - Always on My Mind [song](https://www.youtube.com/watch?v=7kwvdAPUsd0)
 - A Little Less Conversation [song](https://www.youtube.com/watch?v=2itBQFRg9S4)
+- Are You Lonesome Tonight [song](https://www.youtube.com/watch?v=aQzCHrppEiU)
 - Blue Suede Shoes [song](https://www.youtube.com/watch?v=u9ldr_iy4tg)
 - Don't Be Cruel [song](https://www.youtube.com/watch?v=0XzGv35seXI)
 - Suspicious Minds [song](https://www.youtube.com/watch?v=pU77VhPNmks)
+- (Let Me Be Your) Teddy Bear [song](https://www.youtube.com/watch?v=FHUb0l4SI60)
 - It's Now of Never [song](https://www.youtube.com/watch?v=pvXeAIPDsSQ)
 
 ## Elton John
@@ -94,6 +96,10 @@
 - Simple Man [song](https://www.youtube.com/watch?v=zYGabOwBs1c)
 - Gimme Three Steps [song](https://www.youtube.com/watch?v=3qidwcTmDyc)
 
+## Mamas and The Papas, The
+
+- California Dreaming [song](https://www.youtube.com/watch?v=gso6nmgJxUk)
+
 ## Ricky Nelson
 
 - Hello Mary Lou [song](https://www.youtube.com/watch?v=Gmtcb_KKqt8)
@@ -107,11 +113,13 @@
   
 ## Rolling Stones
 
+- As Tears Go By [song](https://www.youtube.com/watch?v=QKvlzCDUs8Q)
 - Sympathy for the Devil [song 1](https://www.youtube.com/watch?v=xD6HZ4tQMiU) | [song 2](https://www.youtube.com/watch?v=CUngr5xpMQo)
 - The Last Time [song](https://www.youtube.com/watch?v=2j12vjK1R9I)
 - Honky Tonk Woman [song](https://www.youtube.com/watch?v=u-wF_Vb2GLc)
 - You Can't Always Get What You Want [song](https://www.youtube.com/watch?v=4a0Y2xfrUWc)
-- Gimme Shelter [song](https://www.youtube.com/watch?v=-lUhhcrhFbk)
+- Gimme Shelter [song 1](https://www.youtube.com/watch?v=-lUhhcrhFbk) | [song 2](https://www.youtube.com/watch?v=7CmtfxpvCZY)
+- Mother's Little Helper [song](https://www.youtube.com/watch?v=EHGyhfuXRxQ)
 
 ## Simon & Garfunkel
 
