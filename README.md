@@ -14,6 +14,8 @@
 
 ## Beatles
 
+- Across the Universe [song](https://www.youtube.com/watch?v=YxKgHhVdf7A)
+- Cry Baby Cry [song](https://www.youtube.com/watch?v=-npC8z8G2co)
 - Blackbird [song](https://www.youtube.com/watch?v=5TnySn2KqD4)
 - You've Got To Hide Your Love Away [song](https://www.youtube.com/watch?v=9YY7Z7JVMEs)
 
@@ -38,7 +40,7 @@
 
 ## Elton John
 
-- Rocket Man [song](https://www.youtube.com/watch?v=3FbROPLBUfY)
+- Rocket Man [song 1](https://www.youtube.com/watch?v=3FbROPLBUfY) | [song 2](https://www.youtube.com/watch?v=UkOOfOthsjM)
 
 ## Eminem
 
