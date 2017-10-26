@@ -6,7 +6,7 @@
 
 ## Eminem
 
-- Lose Yourself [song](https://www.youtube.com/watch?v=u-wF_Vb2GLc)
+- Lose Yourself [song](https://www.youtube.com/watch?v=dR8wiiXXkXU)
 
 ## Creedence
 
