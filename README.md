@@ -27,7 +27,7 @@
   
 ## Rolling Stones
 
-- Sympathy for the Devil [song](https://www.youtube.com/watch?v=xD6HZ4tQMiU)
+- Sympathy for the Devil [song 1](https://www.youtube.com/watch?v=xD6HZ4tQMiU) | [song 2](https://www.youtube.com/watch?v=CUngr5xpMQo)
 - The Last Time [song](https://www.youtube.com/watch?v=2j12vjK1R9I)
 - Honky Tonk Woman [song](https://www.youtube.com/watch?v=u-wF_Vb2GLc)
 
