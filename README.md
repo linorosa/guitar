@@ -7,6 +7,7 @@
 ## Elvis Presley
 
 - Always on My Mind [song](https://www.youtube.com/watch?v=7kwvdAPUsd0)
+- Blue Suede Shoes [song](https://www.youtube.com/watch?v=u9ldr_iy4tg)
 
 ## Jimi Hendrix
 
