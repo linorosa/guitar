@@ -77,6 +77,10 @@
 
 - Love Hurts [song](https://www.youtube.com/watch?v=2eKxNlBwI0c)
 
+## Guns n Roses
+
+- Don't Cry [solo](https://www.youtube.com/watch?v=sSM7uZnix7U)
+
 ## Johnny Cash
 
 - I Walk the Line [song](https://www.youtube.com/watch?v=oD5oy88UMdM)
