@@ -103,6 +103,10 @@
 - You Can't Always Get What You Want [song](https://www.youtube.com/watch?v=4a0Y2xfrUWc)
 - Gimme Shelter [song](https://www.youtube.com/watch?v=-lUhhcrhFbk)
 
+## Simon & Garfunkel
+
+- The Sound of Silence [song](https://www.youtube.com/watch?v=BVSIhBbQfaA)
+
 ## Stevie Ray Vaughan
 
 - Pride and Joy [song 1](https://www.youtube.com/watch?v=Uy_c5VEmtnA) | [song 2](https://www.youtube.com/watch?v=JCUC1qhMLEI)
