@@ -27,6 +27,10 @@
 - Like a Rolling Stone [song](https://www.youtube.com/watch?v=EZTXX7VyWBQ)
 - Mr. Tamborine Man [song](https://www.youtube.com/watch?v=xKaxXGbVmX4)
 
+## Cassia Eller
+
+- No Recreio [song](https://www.youtube.com/watch?v=m0kKjV2rGBY)
+
 ## Cat Stevens
 
 - Wild World [song](https://www.youtube.com/watch?v=P4cYAEZegR4)
