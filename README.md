@@ -24,6 +24,10 @@
 ## Led Zeppelin
 
 - Rock n Roll [song](https://www.youtube.com/watch?v=fo1oPFOBsx0)
+
+## Lynyrd Skynyrd
+
+- Sweet Home Alabama [song](https://www.youtube.com/watch?v=FOh9-f_o_MM)
   
 ## Rolling Stones
 
