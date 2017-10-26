@@ -4,6 +4,10 @@
 
 - Midnight Rider [song](https://www.youtube.com/watch?v=zPrMLkvrHPA)
 
+## Band, The
+
+- The Weight [song](https://www.youtube.com/watch?v=Ls61tFznCQY)
+
 ## BB King
 
 - The Thrill Is Gone: [song 1](https://www.youtube.com/watch?v=lfHXSdBPVBM) | [song 2](https://www.youtube.com/watch?v=K5w8DqF0vT0) | [licks 1](https://www.youtube.com/watch?v=68j0uTgYwck) | [licks 2](https://www.youtube.com/watch?v=LqbT4OaJUZQ)
@@ -49,6 +53,7 @@
 - Purple Haze [song](https://www.youtube.com/watch?v=YgR9F0bs2uY)
 - Castles Made Of Sand [song](https://www.youtube.com/watch?v=Rm_FGAOy3nA)
 - Voodoo Child [song](https://www.youtube.com/watch?v=uQekC2bDYPQ)
+- Red House [song](https://www.youtube.com/watch?v=hX7yZUecRPI)
 
 ## Kansas
 
