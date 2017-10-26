@@ -30,6 +30,7 @@
 ## Cassia Eller
 
 - No Recreio [song](https://www.youtube.com/watch?v=m0kKjV2rGBY)
+- Palavras ao Vento [song](https://www.youtube.com/watch?v=QsbQlaip8Yk)
 
 ## Cat Stevens
 
