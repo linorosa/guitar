@@ -16,7 +16,7 @@
 
 - Across the Universe [song](https://www.youtube.com/watch?v=YxKgHhVdf7A)
 - Cry Baby Cry [song](https://www.youtube.com/watch?v=-npC8z8G2co)
-- Blackbird [song](https://www.youtube.com/watch?v=5TnySn2KqD4)
+- Blackbird [song 1](https://www.youtube.com/watch?v=5TnySn2KqD4) | [song 2](https://www.youtube.com/watch?v=FPeMDesnWX4) | [cover](https://www.youtube.com/watch?v=gLR09oIcA4s)
 - You've Got To Hide Your Love Away [song](https://www.youtube.com/watch?v=9YY7Z7JVMEs)
 - From Me To You [song](https://www.youtube.com/watch?v=JwGcobw6mD0)
 - In My Life [song](https://www.youtube.com/watch?v=J_b2a9r8mGI)
@@ -91,7 +91,7 @@
 ## Led Zeppelin
 
 - Over the Hills and Far Away [song](https://www.youtube.com/watch?v=VnU_bh0dgNU)
-- Rock n Roll [song](https://www.youtube.com/watch?v=fo1oPFOBsx0)
+- Rock n Roll [song 1](https://www.youtube.com/watch?v=fo1oPFOBsx0) | [song 2](https://www.youtube.com/watch?v=weJjnTbxTz4)
 - Tangerine [song](https://www.youtube.com/watch?v=p19zQrk6D7M)
 - Ramble On [song](https://www.youtube.com/watch?v=-tvOx1Fl8Js)
 
