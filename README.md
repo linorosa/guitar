@@ -12,6 +12,10 @@
 
 - Lose Yourself [song](https://www.youtube.com/watch?v=dR8wiiXXkXU)
 
+## Cream
+
+- Sunshine of your Love [song](https://www.youtube.com/watch?v=Ouo2Ek2S_Lo)
+
 ## Creedence
 
 - Bad Moon Rising [song](https://www.youtube.com/watch?v=tFPs89WBPuU)
@@ -40,6 +44,7 @@
 ## Lynyrd Skynyrd
 
 - Sweet Home Alabama [song](https://www.youtube.com/watch?v=FOh9-f_o_MM)
+- Simple Man [song](https://www.youtube.com/watch?v=zYGabOwBs1c)
   
 ## Rolling Stones
 
