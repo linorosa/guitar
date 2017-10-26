@@ -18,10 +18,15 @@
 - Cry Baby Cry [song](https://www.youtube.com/watch?v=-npC8z8G2co)
 - Blackbird [song](https://www.youtube.com/watch?v=5TnySn2KqD4)
 - You've Got To Hide Your Love Away [song](https://www.youtube.com/watch?v=9YY7Z7JVMEs)
+- From Me To You [song](https://www.youtube.com/watch?v=JwGcobw6mD0)
 
 ## Bob Dylan
 
 - Like a Rolling Stone [song](https://www.youtube.com/watch?v=EZTXX7VyWBQ)
+
+## Cat Stevens
+
+- Wild World [song](https://www.youtube.com/watch?v=P4cYAEZegR4)
 
 ## Cream
 
@@ -38,6 +43,7 @@
 ## Elvis Presley
 
 - Always on My Mind [song](https://www.youtube.com/watch?v=7kwvdAPUsd0)
+- A Little Less Conversation [song](https://www.youtube.com/watch?v=2itBQFRg9S4)
 - Blue Suede Shoes [song](https://www.youtube.com/watch?v=u9ldr_iy4tg)
 - Don't Be Cruel [song](https://www.youtube.com/watch?v=0XzGv35seXI)
 - Suspicious Minds [song](https://www.youtube.com/watch?v=pU77VhPNmks)
