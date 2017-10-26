@@ -21,14 +21,6 @@
 
 - Like a Rolling Stone [song](https://www.youtube.com/watch?v=EZTXX7VyWBQ)
 
-## Elton John
-
-- Rocket Man [song](https://www.youtube.com/watch?v=3FbROPLBUfY)
-
-## Eminem
-
-- Lose Yourself [song](https://www.youtube.com/watch?v=dR8wiiXXkXU)
-
 ## Cream
 
 - Sunshine of your Love [song](https://www.youtube.com/watch?v=Ouo2Ek2S_Lo)
@@ -42,6 +34,15 @@
 
 - Always on My Mind [song](https://www.youtube.com/watch?v=7kwvdAPUsd0)
 - Blue Suede Shoes [song](https://www.youtube.com/watch?v=u9ldr_iy4tg)
+- Don't Be Cruel [song](https://www.youtube.com/watch?v=0XzGv35seXI)
+
+## Elton John
+
+- Rocket Man [song](https://www.youtube.com/watch?v=3FbROPLBUfY)
+
+## Eminem
+
+- Lose Yourself [song](https://www.youtube.com/watch?v=dR8wiiXXkXU)
 
 ## Johnny Cash
 
