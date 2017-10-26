@@ -1,0 +1,1 @@
+- [Fingerstyle Pattern For Acoustic Blues](https://www.youtube.com/watch?v=DkzkSke9Rx4)
