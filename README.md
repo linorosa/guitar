@@ -4,6 +4,10 @@
 
 - Midnight Rider [song](https://www.youtube.com/watch?v=zPrMLkvrHPA)
 
+## Anitta
+
+- Paradinha [song](https://www.youtube.com/watch?v=205ii3MwkE0)
+
 ## Band, The
 
 - The Weight [song 1](https://www.youtube.com/watch?v=Ls61tFznCQY) | [song 2](https://www.youtube.com/watch?v=MoOsbKl1BOQ)
