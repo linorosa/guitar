@@ -1,12 +1,40 @@
 # Guitar
 
+## Adele
+
+- Set Fire to the Rain [song](https://www.youtube.com/watch?v=vJEy30EEYSI)
+- Someone Like You [song](https://www.youtube.com/watch?v=S6FjPe4n-_o)
+- Rolling in the Deep [song](https://www.youtube.com/watch?v=Eom6SSBJnMw)
+
+## Alanis Morissette
+
+- Head Over Feet [song](https://www.youtube.com/watch?v=65Z00MTzoVg)
+
+## Aerosmith
+
+- Dream On [song](https://www.youtube.com/watch?v=hFTvfh5LWcE)
+
 ## Allman Brothers
 
 - Midnight Rider [song](https://www.youtube.com/watch?v=zPrMLkvrHPA)
 
+## Araketu
+
+- Araketu e Bom Demais [song](https://www.youtube.com/watch?v=6_BklzorPZE)
+
+## Alceu Valenca
+
+- La Belle De Jour [song](https://www.youtube.com/watch?v=MC6LuUWD6iE)
+
 ## Anitta
 
 - Paradinha [song](https://www.youtube.com/watch?v=205ii3MwkE0)
+- Bang [song 1](https://www.youtube.com/watch?v=jj-698YDYlI) | [song 2](https://www.youtube.com/watch?v=Z4Yraens6lw)
+- Deixa Ele Sofrer [song](https://www.youtube.com/watch?v=o0lOMouGiyM)
+
+## Banda Beijo
+
+- Bate Lata [song](https://www.youtube.com/watch?v=deqGvGGrLv4)
 
 ## Band, The
 
@@ -14,7 +42,11 @@
 
 ## BB King
 
-- The Thrill Is Gone: [song 1](https://www.youtube.com/watch?v=lfHXSdBPVBM) | [song 2](https://www.youtube.com/watch?v=K5w8DqF0vT0) | [licks 1](https://www.youtube.com/watch?v=68j0uTgYwck) | [licks 2](https://www.youtube.com/watch?v=LqbT4OaJUZQ)
+- The Thrill Is Gone: [song 1](https://www.youtube.com/watch?v=lfHXSdBPVBM) | [song 2](https://www.youtube.com/watch?v=K5w8DqF0vT0) | [song 3](https://www.youtube.com/watch?v=dnzj6sQMFC4) | [licks 1](https://www.youtube.com/watch?v=68j0uTgYwck) | [licks 2](https://www.youtube.com/watch?v=LqbT4OaJUZQ)
+
+## Black Sabbath
+
+- Paranoid [song](https://www.youtube.com/watch?v=KMs5xGORrz0) | [solo](https://www.youtube.com/watch?v=QldL8riAmRs)
 
 ## Beatles
 
@@ -26,6 +58,10 @@
 - In My Life [song](https://www.youtube.com/watch?v=J_b2a9r8mGI)
 - With a Little Help From My Friends [song](https://www.youtube.com/watch?v=iaSOnJ_OJtY)
 
+## Beyounce
+
+- Love On Top [song](https://www.youtube.com/watch?v=K9KzMN71Fvc)
+
 ## Bob Dylan
 
 - Blowin' In The Wind [song](https://www.youtube.com/watch?v=2HnilYfx60g)
@@ -35,11 +71,15 @@
 ## Cassia Eller
 
 - No Recreio [song](https://www.youtube.com/watch?v=m0kKjV2rGBY)
-- Palavras ao Vento [song](https://www.youtube.com/watch?v=QsbQlaip8Yk)
+- Palavras ao Vento [song 1](https://www.youtube.com/watch?v=QsbQlaip8Yk) | [song 2](https://www.youtube.com/watch?v=hkdfT21YQjI)
 
 ## Cat Stevens
 
 - Wild World [song](https://www.youtube.com/watch?v=P4cYAEZegR4)
+
+## Chiclete com Banana
+
+- Diga que Valeu [song](https://www.youtube.com/watch?v=fUowAaKEAQo)
 
 ## Cream
 
@@ -53,6 +93,11 @@
 - Cotton Fields [song](https://www.youtube.com/watch?v=5_ANQWaMZX8)
 - Midnight Special [song](https://www.youtube.com/watch?v=4TZQW1afVbA)
 - Proud Mary [song](https://www.youtube.com/watch?v=797SO_XKgAY)
+
+## Dire Straits
+
+- Sultans Of Swing [solo 1](https://www.youtube.com/watch?v=jl4SqwB9aSA) | [solo 2](https://www.youtube.com/watch?v=-qDixYcRy3E)
+- Money For Nothing [song](https://www.youtube.com/watch?v=zZbSkA8wdRE)
 
 ## Elvis Presley
 
@@ -78,15 +123,30 @@
 
 - Love Hurts [song](https://www.youtube.com/watch?v=2eKxNlBwI0c)
 
+## Fagner
+
+- Borbulhas de Amor [song](https://www.youtube.com/watch?v=-sQ-VYjg9-U)
+
 ## Franz Ferdinand
 
 - Take Me Out [song](https://www.youtube.com/watch?v=i8OPwPvZyTs)
 
 ## Guns n Roses
 
-- Don't Cry [solo](https://www.youtube.com/watch?v=sSM7uZnix7U)
+- Don't Cry [song](https://www.youtube.com/watch?v=UXaNQvczOio) | [solo](https://www.youtube.com/watch?v=sSM7uZnix7U)
 - Sweet Child O' Mine [song](https://www.youtube.com/watch?v=ioaExdEGPO4)
 - Welcome To The Jungle [song](https://www.youtube.com/watch?v=ah0GkIsX_MY)
+- Paradise City [song](https://www.youtube.com/watch?v=aIY4YnTyYvE)
+- November Rain [song](https://www.youtube.com/watch?v=dr3HtNd_hpA)
+
+## Iron Maiden
+
+- Fear of the Dark [song](https://www.youtube.com/watch?v=qdjAuKNjeN0)
+- The Trooper [song](https://www.youtube.com/watch?v=XJKnTQYAQb0)
+
+## JET
+
+- Are You Gonna Be My Girl [song](https://www.youtube.com/watch?v=0_OFGB-g-q4)
 
 ## Johnny Cash
 
@@ -107,7 +167,15 @@
 
 ## Kansas
 
-- Dust in the Wind [song](https://www.youtube.com/watch?v=tvwsFfmKw6A)
+- Dust in the Wind [song 1](https://www.youtube.com/watch?v=tvwsFfmKw6A) | [song 2](https://www.youtube.com/watch?v=BU-t9ROEVok)
+
+## Katy Pery
+
+- Firework [song](https://www.youtube.com/watch?v=0q2yIAvP120)
+
+## Kid Abelha
+
+- Como Eu Query [song](https://www.youtube.com/watch?v=JtR_cOO7pGU)
 
 ## KISS
 
@@ -117,16 +185,45 @@
 - Rock n Roll [song 1](https://www.youtube.com/watch?v=fo1oPFOBsx0) | [song 2](https://www.youtube.com/watch?v=weJjnTbxTz4)
 - Tangerine [song](https://www.youtube.com/watch?v=p19zQrk6D7M)
 - Ramble On [song](https://www.youtube.com/watch?v=-tvOx1Fl8Js)
+- Stairway To Heaven [solo](https://www.youtube.com/watch?v=qD3RmiCLTEE)
 
 ## Lynyrd Skynyrd
 
-- Sweet Home Alabama [song](https://www.youtube.com/watch?v=FOh9-f_o_MM)
-- Simple Man [song](https://www.youtube.com/watch?v=zYGabOwBs1c)
+- Sweet Home Alabama [song 1](https://www.youtube.com/watch?v=FOh9-f_o_MM) | [song 2](https://www.youtube.com/watch?v=_HBjxyz2EZY)
+- Simple Man [song 1](https://www.youtube.com/watch?v=zYGabOwBs1c) | [song 2](https://www.youtube.com/watch?v=cMhtJ42gJtc)
 - Gimme Three Steps [song](https://www.youtube.com/watch?v=3qidwcTmDyc)
+
+## Legiao Urbana
+
+- Eu Sei [song](https://www.youtube.com/watch?v=a-9zlYTiwXk)
+
+## Los Hermanos
+
+- Ultimo Romance [song](https://www.youtube.com/watch?v=DJrCDJFfaHs)
+- O Vencedor [song](https://www.youtube.com/watch?v=4U61PcSdLJw)
+- O Vento [song](https://www.youtube.com/watch?v=gxA2KSxgF4M)
+- Morena [song](https://www.youtube.com/watch?v=1D_Cnvc2dVU)
+
+## Massacration
+
+- Metal Is The Law [song](https://www.youtube.com/watch?v=7UWbGUELN5Q)
 
 ## Mamas and The Papas, The
 
 - California Dreaming [song](https://www.youtube.com/watch?v=gso6nmgJxUk)
+
+## Nirvana
+
+- Lake Of Fire [song](https://www.youtube.com/watch?v=Am5e_QGadJY)
+
+## Offspring
+
+- Pretty Fly For A White Guy [song](https://www.youtube.com/watch?v=b8naIKo0UNI)
+- The Kids Aren't Alright [song](https://www.youtube.com/watch?v=4Kb2UZ-Ui68)
+
+## Queen
+
+- Bohemian Rhapsody [solo](https://www.youtube.com/watch?v=JFzE3F8hnAo)
 
 ## Raimundos
 
@@ -135,6 +232,13 @@
 ## Raul Seixas
 
 - Gita [song](https://www.youtube.com/watch?v=oBertvk8_Q8)
+- Cowboy Fora da lei [song](https://www.youtube.com/watch?v=OoTk2j5Szz8)
+- Medo da Chuva [song](https://www.youtube.com/watch?v=OSeh4C2WIEI)
+- Meu Amigo Pedro [song](https://www.youtube.com/watch?v=CW1jw_alo4s)
+
+## Red Hot Chilli Peppers
+
+- Californication [song](https://www.youtube.com/watch?v=cDydrTyPczQ)
 
 ## REM
 
@@ -142,7 +246,7 @@
 
 ## Pink Floyd
 
-- Comfortably Numb [song](https://www.youtube.com/watch?v=z7RvS1uZFrQ)
+- Comfortably Numb [song](https://www.youtube.com/watch?v=z7RvS1uZFrQ) | [solo](https://www.youtube.com/watch?v=KA9Dw6UwW3w)
 
 ## Ricky Nelson
 
@@ -165,6 +269,10 @@
 - Gimme Shelter [song 1](https://www.youtube.com/watch?v=-lUhhcrhFbk) | [song 2](https://www.youtube.com/watch?v=7CmtfxpvCZY)
 - Mother's Little Helper [song](https://www.youtube.com/watch?v=EHGyhfuXRxQ)
 
+## Rush
+
+- Tom Sawyer [song](https://www.youtube.com/watch?v=tb0Wpqfwn_A)
+
 ## Simon & Garfunkel
 
 - The Sound of Silence [song](https://www.youtube.com/watch?v=BVSIhBbQfaA)
@@ -172,6 +280,14 @@
 ## Stevie Ray Vaughan
 
 - Pride and Joy [song 1](https://www.youtube.com/watch?v=Uy_c5VEmtnA) | [song 2](https://www.youtube.com/watch?v=JCUC1qhMLEI)
+
+## Strokes
+
+- Last Nite [song](https://www.youtube.com/watch?v=Z123g8UMKNk)
+
+## Thin Lizzy
+
+- Don't Believe A Word [solo](https://www.youtube.com/watch?v=cPtSupf8nBo)
 
 ## Tim Maia
 
