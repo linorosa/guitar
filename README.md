@@ -80,6 +80,7 @@
 ## Guns n Roses
 
 - Don't Cry [solo](https://www.youtube.com/watch?v=sSM7uZnix7U)
+- Sweet Child O' Mine [song](https://www.youtube.com/watch?v=ioaExdEGPO4)
 
 ## Johnny Cash
 
