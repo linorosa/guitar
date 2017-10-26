@@ -32,6 +32,8 @@
 - Bad Moon Rising [song1](https://www.youtube.com/watch?v=tFPs89WBPuU) | [song2](https://www.youtube.com/watch?v=liBI2yT_fpw)
 - Have You Ever Seen The Rain [song](https://www.youtube.com/watch?v=XYi_3Ne4ZfA)
 - Who'll Stop the Rain [song](https://www.youtube.com/watch?v=OjqDgzll8kY)
+- Cotton Fields [song](https://www.youtube.com/watch?v=5_ANQWaMZX8)
+- Midnight Special [song](https://www.youtube.com/watch?v=4TZQW1afVbA)
 
 ## Elvis Presley
 
@@ -39,6 +41,7 @@
 - Blue Suede Shoes [song](https://www.youtube.com/watch?v=u9ldr_iy4tg)
 - Don't Be Cruel [song](https://www.youtube.com/watch?v=0XzGv35seXI)
 - Suspicious Minds [song](https://www.youtube.com/watch?v=pU77VhPNmks)
+- It's Now of Never [song](https://www.youtube.com/watch?v=pvXeAIPDsSQ)
 
 ## Elton John
 
@@ -94,6 +97,7 @@
 - I Wonder [song](https://www.youtube.com/watch?v=7mZjMxaUnrA)
 - Hate Street Dialogue [song](https://www.youtube.com/watch?v=3_vgmKWWhzI)
 - Crucify Your Mind [song](https://www.youtube.com/watch?v=3IHt3-X0V3U)
+- Sugar Man [song](https://www.youtube.com/watch?v=8lRbbjHL29s)
   
 ## Rolling Stones
 
