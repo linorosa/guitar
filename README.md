@@ -16,7 +16,7 @@
 
 ## Allman Brothers
 
-- Midnight Rider [song 1](https://www.youtube.com/watch?v=zPrMLkvrHPA) | [song 2](https://www.youtube.com/watch?v=dxJgQ6EeZbc)
+- Midnight Rider [song](https://www.youtube.com/watch?v=dxJgQ6EeZbc)
 
 ## Araketu
 
