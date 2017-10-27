@@ -154,7 +154,7 @@
 
 ## Johnny Cash
 
-- I Walk the Line [song](https://www.youtube.com/watch?v=oD5oy88UMdM)
+- I Walk the Line [intro](https://www.youtube.com/watch?v=oD5oy88UMdM) | [song](https://www.youtube.com/watch?v=OCpAJqnZACE)
 
 ## Jimi Hendrix
 
