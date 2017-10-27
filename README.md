@@ -1,5 +1,8 @@
 # Guitar
 
+## AC/DC
+
+- You Shock Me All Nite Long [song](https://www.youtube.com/watch?v=L9glgmB1TAk) | [solo](https://www.youtube.com/watch?v=-MzjzFH4Nd4)
 ## Adele
 
 - Set Fire to the Rain [song](https://www.youtube.com/watch?v=vJEy30EEYSI)
@@ -87,7 +90,7 @@
 
 ## Creedence
 
-- Bad Moon Rising [song1](https://www.youtube.com/watch?v=tFPs89WBPuU) | [song2](https://www.youtube.com/watch?v=liBI2yT_fpw)
+- Bad Moon Rising [song1](https://www.youtube.com/watch?v=tFPs89WBPuU) | [song2](https://www.youtube.com/watch?v=liBI2yT_fpw) | [song 3](https://www.youtube.com/watch?v=D1tA7QN_6pc)
 - Have You Ever Seen The Rain [song 1](https://www.youtube.com/watch?v=XYi_3Ne4ZfA) | [song 2](https://www.youtube.com/watch?v=H6Dnk-nuuNI)
 - Who'll Stop the Rain [song](https://www.youtube.com/watch?v=OjqDgzll8kY)
 - Cotton Fields [song](https://www.youtube.com/watch?v=5_ANQWaMZX8)
@@ -174,6 +177,10 @@
 
 - Firework [song](https://www.youtube.com/watch?v=0q2yIAvP120)
 
+## Kinks, The
+
+- You Really Got Me [song](https://www.youtube.com/watch?v=_k-nhGTrj7U)
+
 ## Kid Abelha
 
 - Como Eu Query [song](https://www.youtube.com/watch?v=JtR_cOO7pGU)
@@ -186,7 +193,7 @@
 - Over the Hills and Far Away [song](https://www.youtube.com/watch?v=VnU_bh0dgNU)
 - Rock n Roll [song 1](https://www.youtube.com/watch?v=fo1oPFOBsx0) | [song 2](https://www.youtube.com/watch?v=weJjnTbxTz4)
 - Tangerine [song](https://www.youtube.com/watch?v=p19zQrk6D7M)
-- Ramble On [song](https://www.youtube.com/watch?v=-tvOx1Fl8Js)
+- Ramble On [song 1](https://www.youtube.com/watch?v=-tvOx1Fl8Js) | [song 2](https://www.youtube.com/watch?v=fLVC-vovuwo)
 - Stairway To Heaven [solo](https://www.youtube.com/watch?v=qD3RmiCLTEE)
 - The Rain Song [song](https://www.youtube.com/watch?v=heT1mKjUJhs)
 - Dazed and Confused [solo](https://www.youtube.com/watch?v=LDr3ZotbUk4)
@@ -294,3 +301,7 @@
 ## Tim Maia
 
 - Gostava Tanto de Voce [song](https://www.youtube.com/watch?v=nXmSVU6RQXQ)
+
+## Who
+
+- My Generation [song](https://www.youtube.com/watch?v=t14YTK3A0ww)
