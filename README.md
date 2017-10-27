@@ -138,6 +138,7 @@
 - Welcome To The Jungle [song](https://www.youtube.com/watch?v=ah0GkIsX_MY)
 - Paradise City [song](https://www.youtube.com/watch?v=aIY4YnTyYvE)
 - November Rain [song](https://www.youtube.com/watch?v=dr3HtNd_hpA)
+- Rocket Queen [part 1](https://www.youtube.com/watch?v=P2zauPHSTUQ) | [part 2](https://www.youtube.com/watch?v=p441azM3CMU)
 
 ## Iron Maiden
 
@@ -181,11 +182,14 @@
 
 ## Led Zeppelin
 
+- Babe I'm Gonna Leave You [part 1](https://www.youtube.com/watch?v=FWBrYhfild8) | [part 2](https://www.youtube.com/watch?v=ztb_fMIww7Q) | [part 3](https://www.youtube.com/watch?v=xQuue9Hn8DE)
 - Over the Hills and Far Away [song](https://www.youtube.com/watch?v=VnU_bh0dgNU)
 - Rock n Roll [song 1](https://www.youtube.com/watch?v=fo1oPFOBsx0) | [song 2](https://www.youtube.com/watch?v=weJjnTbxTz4)
 - Tangerine [song](https://www.youtube.com/watch?v=p19zQrk6D7M)
 - Ramble On [song](https://www.youtube.com/watch?v=-tvOx1Fl8Js)
 - Stairway To Heaven [solo](https://www.youtube.com/watch?v=qD3RmiCLTEE)
+- The Rain Song [song](https://www.youtube.com/watch?v=heT1mKjUJhs)
+- Dazed and Confused [solo](https://www.youtube.com/watch?v=LDr3ZotbUk4)
 
 ## Lynyrd Skynyrd
 
