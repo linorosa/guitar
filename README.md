@@ -86,7 +86,7 @@
 
 ## Cream
 
-- Sunshine of your Love [song](https://www.youtube.com/watch?v=Ouo2Ek2S_Lo)
+- Sunshine of your Love [song](https://www.youtube.com/watch?v=Ouo2Ek2S_Lo) | [solo](https://www.youtube.com/watch?v=3OZ0bAweJO8)
 
 ## Creedence
 
