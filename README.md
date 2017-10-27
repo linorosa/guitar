@@ -279,7 +279,7 @@
 
 ## Stevie Ray Vaughan
 
-- Pride and Joy [song 1](https://www.youtube.com/watch?v=Uy_c5VEmtnA) | [song 2](https://www.youtube.com/watch?v=JCUC1qhMLEI)
+- Pride and Joy [song](https://www.youtube.com/watch?v=JCUC1qhMLEI)
 
 ## Strokes
 
