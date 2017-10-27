@@ -249,7 +249,7 @@
 
 ## Red Hot Chilli Peppers
 
-- Californication [song](https://www.youtube.com/watch?v=cDydrTyPczQ)
+- Californication [song](https://www.youtube.com/watch?v=s-IdO6IKuKM)
 
 ## REM
 
