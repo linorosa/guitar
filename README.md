@@ -38,7 +38,7 @@
 
 ## Band, The
 
-- The Weight [song 1](https://www.youtube.com/watch?v=Ls61tFznCQY) | [song 2](https://www.youtube.com/watch?v=MoOsbKl1BOQ)
+- The Weight [song](https://www.youtube.com/watch?v=MoOsbKl1BOQ)
 
 ## BB King
 
