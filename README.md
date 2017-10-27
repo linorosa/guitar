@@ -291,4 +291,4 @@
 
 ## Tim Maia
 
-- Gostava Tanto de Voce [song 1](https://www.youtube.com/watch?v=15Z_7u0aVZ8) | [song 2](https://www.youtube.com/watch?v=nXmSVU6RQXQ)
+- Gostava Tanto de Voce [song](https://www.youtube.com/watch?v=nXmSVU6RQXQ)
