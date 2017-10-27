@@ -29,7 +29,7 @@
 ## Anitta
 
 - Paradinha [song](https://www.youtube.com/watch?v=205ii3MwkE0)
-- Bang [song 1](https://www.youtube.com/watch?v=jj-698YDYlI) | [song 2](https://www.youtube.com/watch?v=Z4Yraens6lw)
+- Bang [song](https://www.youtube.com/watch?v=Z4Yraens6lw)
 - Deixa Ele Sofrer [song](https://www.youtube.com/watch?v=o0lOMouGiyM)
 
 ## Banda Beijo
