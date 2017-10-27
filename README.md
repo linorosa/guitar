@@ -90,7 +90,7 @@
 
 ## Creedence
 
-- Bad Moon Rising [song1](https://www.youtube.com/watch?v=tFPs89WBPuU) | [song2](https://www.youtube.com/watch?v=liBI2yT_fpw) | [song 3](https://www.youtube.com/watch?v=D1tA7QN_6pc)
+- Bad Moon Rising [song](https://www.youtube.com/watch?v=D1tA7QN_6pc)
 - Have You Ever Seen The Rain [song 1](https://www.youtube.com/watch?v=XYi_3Ne4ZfA) | [song 2](https://www.youtube.com/watch?v=H6Dnk-nuuNI)
 - Who'll Stop the Rain [song](https://www.youtube.com/watch?v=OjqDgzll8kY)
 - Cotton Fields [song](https://www.youtube.com/watch?v=5_ANQWaMZX8)
