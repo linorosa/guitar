@@ -287,8 +287,6 @@
 
 ## Thin Lizzy
 
-- Don't Believe A Word [solo](https://www.youtube.com/watch?v=cPtSupf8nBo)
-
 ## Tim Maia
 
 - Gostava Tanto de Voce [song](https://www.youtube.com/watch?v=nXmSVU6RQXQ)
