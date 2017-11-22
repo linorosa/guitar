@@ -96,6 +96,7 @@
 - Cotton Fields [song](https://www.youtube.com/watch?v=5_ANQWaMZX8)
 - Midnight Special [song](https://www.youtube.com/watch?v=4TZQW1afVbA)
 - Proud Mary [song](https://www.youtube.com/watch?v=797SO_XKgAY)
+- Fortunate Son [song](https://www.youtube.com/watch?v=L0EpFT1Pv_8)
 
 ## Dire Straits
 
