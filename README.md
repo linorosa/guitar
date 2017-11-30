@@ -27,14 +27,7 @@
 
 ## Led Zeppelin
 
-- Babe I'm Gonna Leave You [part 1](https://www.youtube.com/watch?v=FWBrYhfild8) | [part 2](https://www.youtube.com/watch?v=ztb_fMIww7Q) | [part 3](https://www.youtube.com/watch?v=xQuue9Hn8DE)
-- Over the Hills and Far Away [song](https://www.youtube.com/watch?v=VnU_bh0dgNU)
-- Rock n Roll [song 1](https://www.youtube.com/watch?v=fo1oPFOBsx0) | [song 2](https://www.youtube.com/watch?v=weJjnTbxTz4)
-- Tangerine [song](https://www.youtube.com/watch?v=p19zQrk6D7M)
-- Ramble On [song 1](https://www.youtube.com/watch?v=-tvOx1Fl8Js) | [song 2](https://www.youtube.com/watch?v=fLVC-vovuwo)
 - Stairway To Heaven [solo](https://www.youtube.com/watch?v=qD3RmiCLTEE)
-- The Rain Song [song](https://www.youtube.com/watch?v=heT1mKjUJhs)
-- Dazed and Confused [solo](https://www.youtube.com/watch?v=LDr3ZotbUk4)
 
 ## Lynyrd Skynyrd
 
