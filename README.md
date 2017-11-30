@@ -44,13 +44,6 @@
 ## Raimundos
 
 - A Mais Pedida [song](https://www.youtube.com/watch?v=HCZaQPmgvC4)
-
-## Rodrigues
-
-- I Wonder [song](https://www.youtube.com/watch?v=7mZjMxaUnrA)
-- Hate Street Dialogue [song](https://www.youtube.com/watch?v=3_vgmKWWhzI)
-- Crucify Your Mind [song](https://www.youtube.com/watch?v=3IHt3-X0V3U)
-- Sugar Man [song](https://www.youtube.com/watch?v=8lRbbjHL29s)
   
 ## Rolling Stones
 
