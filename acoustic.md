@@ -68,3 +68,14 @@
 - It's Now of Never [song](https://www.youtube.com/watch?v=pvXeAIPDsSQ)
 - My Way [song](https://www.youtube.com/watch?v=gzkDmTHorSg)
 
+## Elton John
+
+- Rocket Man [song](https://www.youtube.com/watch?v=UkOOfOthsjM)
+
+## Eminem
+
+- Lose Yourself [song](https://www.youtube.com/watch?v=dR8wiiXXkXU)
+
+## Fagner
+
+- Borbulhas de Amor [song](https://www.youtube.com/watch?v=-sQ-VYjg9-U)
