@@ -97,3 +97,9 @@
 - Over the Hills and Far Away [song](https://www.youtube.com/watch?v=VnU_bh0dgNU)
 - Tangerine [song](https://www.youtube.com/watch?v=p19zQrk6D7M)
 - Ramble On [song 1](https://www.youtube.com/watch?v=-tvOx1Fl8Js) | [song 2](https://www.youtube.com/watch?v=fLVC-vovuwo)
+
+## Lynyrd Skynyrd
+
+- Sweet Home Alabama [song](https://www.youtube.com/watch?v=_HBjxyz2EZY)
+- Simple Man [song](https://www.youtube.com/watch?v=cMhtJ42gJtc)
+- Gimme Three Steps [song](https://www.youtube.com/watch?v=3qidwcTmDyc)
