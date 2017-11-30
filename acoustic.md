@@ -79,3 +79,15 @@
 ## Fagner
 
 - Borbulhas de Amor [song](https://www.youtube.com/watch?v=-sQ-VYjg9-U)
+
+## Kansas
+
+- Dust in the Wind [song](https://www.youtube.com/watch?v=BU-t9ROEVok)
+
+## Katy Pery
+
+- Firework [song](https://www.youtube.com/watch?v=0q2yIAvP120)
+
+## Kid Abelha
+
+- Como Eu Query [song](https://www.youtube.com/watch?v=JtR_cOO7pGU)
