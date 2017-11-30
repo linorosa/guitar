@@ -29,23 +29,6 @@
 
 - Stairway To Heaven [solo](https://www.youtube.com/watch?v=qD3RmiCLTEE)
 
-## Lynyrd Skynyrd
-
-- Sweet Home Alabama [song 1](https://www.youtube.com/watch?v=FOh9-f_o_MM) | [song 2](https://www.youtube.com/watch?v=_HBjxyz2EZY)
-- Simple Man [song 1](https://www.youtube.com/watch?v=zYGabOwBs1c) | [song 2](https://www.youtube.com/watch?v=cMhtJ42gJtc)
-- Gimme Three Steps [song](https://www.youtube.com/watch?v=3qidwcTmDyc)
-
-## Legiao Urbana
-
-- Eu Sei [song](https://www.youtube.com/watch?v=a-9zlYTiwXk)
-
-## Los Hermanos
-
-- Ultimo Romance [song](https://www.youtube.com/watch?v=DJrCDJFfaHs)
-- O Vencedor [song](https://www.youtube.com/watch?v=4U61PcSdLJw)
-- O Vento [song](https://www.youtube.com/watch?v=gxA2KSxgF4M)
-- Morena [song](https://www.youtube.com/watch?v=1D_Cnvc2dVU)
-
 ## Massacration
 
 - Metal Is The Law [song](https://www.youtube.com/watch?v=7UWbGUELN5Q)
