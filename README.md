@@ -49,24 +49,6 @@
 
 - Tom Sawyer [song](https://www.youtube.com/watch?v=tb0Wpqfwn_A)
 
-## Simon & Garfunkel
-
-- The Sound of Silence [song](https://www.youtube.com/watch?v=BVSIhBbQfaA)
-
-## Stevie Ray Vaughan
-
-- Pride and Joy [song](https://www.youtube.com/watch?v=JCUC1qhMLEI)
-
 ## Strokes
 
 - Last Nite [song](https://www.youtube.com/watch?v=Z123g8UMKNk)
-
-## Thin Lizzy
-
-## Tim Maia
-
-- Gostava Tanto de Voce [song](https://www.youtube.com/watch?v=nXmSVU6RQXQ)
-
-## Who
-
-- My Generation [song](https://www.youtube.com/watch?v=t14YTK3A0ww)
