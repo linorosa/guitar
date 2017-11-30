@@ -147,3 +147,11 @@
 ## Rolling Stones
 
 - Mother's Little Helper [song](https://www.youtube.com/watch?v=EHGyhfuXRxQ)
+
+## Simon & Garfunkel
+
+- The Sound of Silence [song](https://www.youtube.com/watch?v=BVSIhBbQfaA)
+
+## Tim Maia
+
+- Gostava Tanto de Voce [song](https://www.youtube.com/watch?v=nXmSVU6RQXQ)
