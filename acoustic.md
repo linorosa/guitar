@@ -143,3 +143,7 @@
 - I Wonder [song](https://www.youtube.com/watch?v=7mZjMxaUnrA)
 - Crucify Your Mind [song](https://www.youtube.com/watch?v=3IHt3-X0V3U)
 - Sugar Man [song](https://www.youtube.com/watch?v=8lRbbjHL29s)
+
+## Rolling Stones
+
+- Mother's Little Helper [song](https://www.youtube.com/watch?v=EHGyhfuXRxQ)
