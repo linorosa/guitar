@@ -15,7 +15,6 @@
 - Welcome To The Jungle [song](https://www.youtube.com/watch?v=ah0GkIsX_MY)
 - Paradise City [song](https://www.youtube.com/watch?v=aIY4YnTyYvE)
 - November Rain [song](https://www.youtube.com/watch?v=dr3HtNd_hpA)
-- Rocket Queen [part 1](https://www.youtube.com/watch?v=P2zauPHSTUQ) | [part 2](https://www.youtube.com/watch?v=p441azM3CMU)
 
 ## Iron Maiden
 
