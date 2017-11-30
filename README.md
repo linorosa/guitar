@@ -25,28 +25,6 @@
 
 - Are You Gonna Be My Girl [song](https://www.youtube.com/watch?v=0_OFGB-g-q4)
 
-## Joe Cocker
-
-- The Letter [song](https://www.youtube.com/watch?v=0oY6msPeY8w)
-
-## Kansas
-
-- Dust in the Wind [song 1](https://www.youtube.com/watch?v=tvwsFfmKw6A) | [song 2](https://www.youtube.com/watch?v=BU-t9ROEVok)
-
-## Katy Pery
-
-- Firework [song](https://www.youtube.com/watch?v=0q2yIAvP120)
-
-## Kinks, The
-
-- You Really Got Me [song](https://www.youtube.com/watch?v=_k-nhGTrj7U)
-
-## Kid Abelha
-
-- Como Eu Query [song](https://www.youtube.com/watch?v=JtR_cOO7pGU)
-
-## KISS
-
 ## Led Zeppelin
 
 - Babe I'm Gonna Leave You [part 1](https://www.youtube.com/watch?v=FWBrYhfild8) | [part 2](https://www.youtube.com/watch?v=ztb_fMIww7Q) | [part 3](https://www.youtube.com/watch?v=xQuue9Hn8DE)
