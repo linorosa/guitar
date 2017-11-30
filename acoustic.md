@@ -59,3 +59,12 @@
 - Proud Mary [song](https://www.youtube.com/watch?v=797SO_XKgAY)
 - Fortunate Son [song](https://www.youtube.com/watch?v=L0EpFT1Pv_8)
 
+## Elvis Presley
+
+- A Little Less Conversation [song](https://www.youtube.com/watch?v=2itBQFRg9S4)
+- Are You Lonesome Tonight [song](https://www.youtube.com/watch?v=aQzCHrppEiU)
+- Don't Be Cruel [song](https://www.youtube.com/watch?v=0XzGv35seXI)
+- Suspicious Minds [song](https://www.youtube.com/watch?v=pU77VhPNmks)
+- It's Now of Never [song](https://www.youtube.com/watch?v=pvXeAIPDsSQ)
+- My Way [song](https://www.youtube.com/watch?v=gzkDmTHorSg)
+
