@@ -25,10 +25,6 @@
 
 - Are You Gonna Be My Girl [song](https://www.youtube.com/watch?v=0_OFGB-g-q4)
 
-## Johnny Cash
-
-- I Walk the Line [intro](https://www.youtube.com/watch?v=oD5oy88UMdM) | [song](https://www.youtube.com/watch?v=OCpAJqnZACE)
-
 ## Jimi Hendrix
 
 - All Along The Watchtower [solo](https://www.youtube.com/watch?v=F28Zzitu_4o)
