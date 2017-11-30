@@ -51,3 +51,11 @@
 ## Chiclete com Banana
 
 - Diga que Valeu [song](https://www.youtube.com/watch?v=fUowAaKEAQo)
+
+## Creedence
+
+- Bad Moon Rising [song](https://www.youtube.com/watch?v=D1tA7QN_6pc)
+- Have You Ever Seen The Rain [song](https://www.youtube.com/watch?v=XYi_3Ne4ZfA)
+- Proud Mary [song](https://www.youtube.com/watch?v=797SO_XKgAY)
+- Fortunate Son [song](https://www.youtube.com/watch?v=L0EpFT1Pv_8)
+
