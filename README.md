@@ -4,23 +4,6 @@
 
 - Dream On [song](https://www.youtube.com/watch?v=hFTvfh5LWcE)
 
-## Dire Straits
-
-- Sultans Of Swing [solo 1](https://www.youtube.com/watch?v=jl4SqwB9aSA) | [solo 2](https://www.youtube.com/watch?v=-qDixYcRy3E)
-- Money For Nothing [song](https://www.youtube.com/watch?v=zZbSkA8wdRE)
-
-## Elvis Presley
-
-- Always on My Mind [song](https://www.youtube.com/watch?v=7kwvdAPUsd0)
-- A Little Less Conversation [song](https://www.youtube.com/watch?v=2itBQFRg9S4)
-- Are You Lonesome Tonight [song](https://www.youtube.com/watch?v=aQzCHrppEiU)
-- Blue Suede Shoes [song](https://www.youtube.com/watch?v=u9ldr_iy4tg)
-- Don't Be Cruel [song](https://www.youtube.com/watch?v=0XzGv35seXI)
-- Suspicious Minds [song](https://www.youtube.com/watch?v=pU77VhPNmks)
-- (Let Me Be Your) Teddy Bear [song](https://www.youtube.com/watch?v=FHUb0l4SI60)
-- It's Now of Never [song](https://www.youtube.com/watch?v=pvXeAIPDsSQ)
-- My Way [song](https://www.youtube.com/watch?v=gzkDmTHorSg)
-
 ## Elton John
 
 - Rocket Man [song 1](https://www.youtube.com/watch?v=3FbROPLBUfY) | [song 2](https://www.youtube.com/watch?v=UkOOfOthsjM)
