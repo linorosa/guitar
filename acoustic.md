@@ -114,3 +114,11 @@
 - O Vencedor [song](https://www.youtube.com/watch?v=4U61PcSdLJw)
 - O Vento [song](https://www.youtube.com/watch?v=gxA2KSxgF4M)
 - Morena [song](https://www.youtube.com/watch?v=1D_Cnvc2dVU)
+
+## Mamas and The Papas, The
+
+- California Dreaming [song](https://www.youtube.com/watch?v=gso6nmgJxUk)
+
+## Nirvana
+
+- Lake Of Fire [song](https://www.youtube.com/watch?v=Am5e_QGadJY)
