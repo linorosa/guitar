@@ -4,22 +4,6 @@
 
 - Dream On [song](https://www.youtube.com/watch?v=hFTvfh5LWcE)
 
-## Elton John
-
-- Rocket Man [song 1](https://www.youtube.com/watch?v=3FbROPLBUfY) | [song 2](https://www.youtube.com/watch?v=UkOOfOthsjM)
-
-## Eminem
-
-- Lose Yourself [song](https://www.youtube.com/watch?v=dR8wiiXXkXU)
-
-## Everly Brothers
-
-- Love Hurts [song](https://www.youtube.com/watch?v=2eKxNlBwI0c)
-
-## Fagner
-
-- Borbulhas de Amor [song](https://www.youtube.com/watch?v=-sQ-VYjg9-U)
-
 ## Franz Ferdinand
 
 - Take Me Out [song](https://www.youtube.com/watch?v=i8OPwPvZyTs)
