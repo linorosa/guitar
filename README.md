@@ -45,29 +45,6 @@
 
 - A Mais Pedida [song](https://www.youtube.com/watch?v=HCZaQPmgvC4)
 
-## Raul Seixas
-
-- Gita [song](https://www.youtube.com/watch?v=oBertvk8_Q8)
-- Cowboy Fora da lei [song](https://www.youtube.com/watch?v=OoTk2j5Szz8)
-- Medo da Chuva [song](https://www.youtube.com/watch?v=OSeh4C2WIEI)
-- Meu Amigo Pedro [song](https://www.youtube.com/watch?v=CW1jw_alo4s)
-
-## Red Hot Chilli Peppers
-
-- Californication [song](https://www.youtube.com/watch?v=s-IdO6IKuKM)
-
-## REM
-
-- Losing My Religion [song](https://www.youtube.com/watch?v=vPTyg4F9Ovk)
-
-## Pink Floyd
-
-- Comfortably Numb [song](https://www.youtube.com/watch?v=z7RvS1uZFrQ) | [solo](https://www.youtube.com/watch?v=KA9Dw6UwW3w)
-
-## Ricky Nelson
-
-- Hello Mary Lou [song](https://www.youtube.com/watch?v=Gmtcb_KKqt8)
-
 ## Rodrigues
 
 - I Wonder [song](https://www.youtube.com/watch?v=7mZjMxaUnrA)
