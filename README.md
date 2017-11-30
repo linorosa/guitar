@@ -33,17 +33,8 @@
 
 - Metal Is The Law [song](https://www.youtube.com/watch?v=7UWbGUELN5Q)
 
-## Mamas and The Papas, The
-
-- California Dreaming [song](https://www.youtube.com/watch?v=gso6nmgJxUk)
-
-## Nirvana
-
-- Lake Of Fire [song](https://www.youtube.com/watch?v=Am5e_QGadJY)
-
 ## Offspring
 
-- Pretty Fly For A White Guy [song](https://www.youtube.com/watch?v=b8naIKo0UNI)
 - The Kids Aren't Alright [song](https://www.youtube.com/watch?v=4Kb2UZ-Ui68)
 
 ## Queen
