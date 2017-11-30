@@ -25,15 +25,6 @@
 
 - Are You Gonna Be My Girl [song](https://www.youtube.com/watch?v=0_OFGB-g-q4)
 
-## Jimi Hendrix
-
-- All Along The Watchtower [solo](https://www.youtube.com/watch?v=F28Zzitu_4o)
-- Fire [song](https://www.youtube.com/watch?v=7FiBc8UUQ88)
-- Purple Haze [song](https://www.youtube.com/watch?v=YgR9F0bs2uY)
-- Castles Made Of Sand [song](https://www.youtube.com/watch?v=Rm_FGAOy3nA)
-- Voodoo Child [song](https://www.youtube.com/watch?v=uQekC2bDYPQ)
-- Red House [song](https://www.youtube.com/watch?v=hX7yZUecRPI)
-
 ## Joe Cocker
 
 - The Letter [song](https://www.youtube.com/watch?v=0oY6msPeY8w)
