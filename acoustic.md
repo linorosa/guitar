@@ -103,3 +103,14 @@
 - Sweet Home Alabama [song](https://www.youtube.com/watch?v=_HBjxyz2EZY)
 - Simple Man [song](https://www.youtube.com/watch?v=cMhtJ42gJtc)
 - Gimme Three Steps [song](https://www.youtube.com/watch?v=3qidwcTmDyc)
+
+## Legiao Urbana
+
+- Eu Sei [song](https://www.youtube.com/watch?v=a-9zlYTiwXk)
+
+## Los Hermanos
+
+- Ultimo Romance [song](https://www.youtube.com/watch?v=DJrCDJFfaHs)
+- O Vencedor [song](https://www.youtube.com/watch?v=4U61PcSdLJw)
+- O Vento [song](https://www.youtube.com/watch?v=gxA2KSxgF4M)
+- Morena [song](https://www.youtube.com/watch?v=1D_Cnvc2dVU)
