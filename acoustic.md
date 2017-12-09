@@ -10,7 +10,7 @@
 
 ## Alceu Valenca
 
-- La Belle De Jour [song](https://www.cifraclub.com.br/alceu-valenca/la-belle-du-jour/#autoplay=false)
+- La Belle De Jour [song](https://www.youtube.com/watch?v=MC6LuUWD6iE)
 
 ## Anitta
 
