@@ -1,16 +1,14 @@
-## Adele
+## Learning
 
-- Set Fire to the Rain [song](https://www.cifraclub.com.br/adele/set-fire-to-the-rain)
-- Someone Like You [song](https://www.cifraclub.com.br/adele/someone-like-you)
-- Rolling in the Deep [song](https://www.cifraclub.com.br/adele/rolling-in-the-deep/)
+- **Adele**: [Set Fire to the Rain](https://www.cifraclub.com.br/adele/set-fire-to-the-rain)
+- **Adele**: [Someone Like You](https://www.cifraclub.com.br/adele/someone-like-you)
+- **Adele**: [Rolling in the Deep](https://www.cifraclub.com.br/adele/rolling-in-the-deep/)
+- **Alceu Valenca**: [La Belle De Jour](https://www.youtube.com/watch?v=MC6LuUWD6iE)
+- **Los Hermanos**: [Ultimo Romance](https://www.youtube.com/watch?v=DJrCDJFfaHs)
 
 ## Araketu
 
 - Araketu e Bom Demais [song](https://www.youtube.com/watch?v=6_BklzorPZE)
-
-## Alceu Valenca
-
-- La Belle De Jour [song](https://www.youtube.com/watch?v=MC6LuUWD6iE)
 
 ## Anitta
 
@@ -106,7 +104,7 @@
 
 ## Los Hermanos
 
-- Ultimo Romance [song](https://www.youtube.com/watch?v=DJrCDJFfaHs)
+
 - O Vencedor [song](https://www.youtube.com/watch?v=4U61PcSdLJw)
 - O Vento [song](https://www.youtube.com/watch?v=gxA2KSxgF4M)
 - Morena [song](https://www.youtube.com/watch?v=1D_Cnvc2dVU)
