@@ -1,8 +1,8 @@
 ## Adele
 
-- Set Fire to the Rain [song](https://www.youtube.com/watch?v=vJEy30EEYSI)
-- Someone Like You [song](https://www.youtube.com/watch?v=S6FjPe4n-_o)
-- Rolling in the Deep [song](https://www.youtube.com/watch?v=Eom6SSBJnMw)
+- Set Fire to the Rain [song](https://www.cifraclub.com.br/adele/set-fire-to-the-rain)
+- Someone Like You [song](https://www.cifraclub.com.br/adele/someone-like-you)
+- Rolling in the Deep [song](https://www.cifraclub.com.br/adele/rolling-in-the-deep/)
 
 ## Araketu
 
