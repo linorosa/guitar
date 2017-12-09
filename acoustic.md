@@ -1,8 +1,8 @@
 ## Learning
 
-- **Adele**: [Set Fire to the Rain](https://www.cifraclub.com.br/adele/set-fire-to-the-rain)
-- **Adele**: [Someone Like You](https://www.cifraclub.com.br/adele/someone-like-you)
-- **Adele**: [Rolling in the Deep](https://www.cifraclub.com.br/adele/rolling-in-the-deep/)
+- **Adele**: [Set Fire to the Rain](https://www.youtube.com/watch?v=vJEy30EEYSI)
+- **Adele**: [Someone Like You](https://www.youtube.com/watch?v=S6FjPe4n-_o)
+- **Adele**: [Rolling in the Deep](https://www.youtube.com/watch?v=Eom6SSBJnMw)
 - **Alceu Valenca**: [La Belle De Jour](https://www.youtube.com/watch?v=MC6LuUWD6iE)
 - **Los Hermanos**: [Ultimo Romance](https://www.youtube.com/watch?v=DJrCDJFfaHs)
 
