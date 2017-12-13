@@ -3,8 +3,11 @@
 - **Adele**: [Set Fire to the Rain](https://www.youtube.com/watch?v=vJEy30EEYSI)
 - **Adele**: [Someone Like You](https://www.youtube.com/watch?v=S6FjPe4n-_o)
 - **Adele**: [Rolling in the Deep](https://www.youtube.com/watch?v=Eom6SSBJnMw)
-- **Alceu Valenca**: [La Belle De Jour](https://www.youtube.com/watch?v=MC6LuUWD6iE)
 - **Los Hermanos**: [Ultimo Romance](https://www.youtube.com/watch?v=DJrCDJFfaHs)
+
+## Too hard for now
+
+- **Alceu Valenca**: [La Belle De Jour](https://www.youtube.com/watch?v=MC6LuUWD6iE)
 
 ## Araketu
 
