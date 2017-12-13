@@ -4,6 +4,7 @@
 - **Adele**: [Someone Like You](https://www.youtube.com/watch?v=S6FjPe4n-_o)
 - **Adele**: [Rolling in the Deep](https://www.youtube.com/watch?v=Eom6SSBJnMw)
 - **Los Hermanos**: [Ultimo Romance](https://www.youtube.com/watch?v=DJrCDJFfaHs)
+- **Kid Abelha**: [Como Eu Quero](https://www.youtube.com/watch?v=JtR_cOO7pGU)
 
 ## Too hard for now
 
@@ -84,10 +85,6 @@
 ## Katy Pery
 
 - Firework [song](https://www.youtube.com/watch?v=0q2yIAvP120)
-
-## Kid Abelha
-
-- Como Eu Query [song](https://www.youtube.com/watch?v=JtR_cOO7pGU)
 
 ## Led Zeppelin
 
