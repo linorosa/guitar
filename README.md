@@ -52,3 +52,12 @@
 ## Strokes
 
 - Last Nite [song](https://www.youtube.com/watch?v=Z123g8UMKNk)
+
+
+```bash
+kubectl --context staging-db -n events port-forward couchdb-0 5984
+```
+
+```console
+kubectl --context staging-db -n events port-forward couchdb-0 5984
+```
